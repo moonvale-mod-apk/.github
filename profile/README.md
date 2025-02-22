@@ -1,5 +1,5 @@
 # Moonvale Mod APK 1.2.1 Dinheiro Infinito (Vip Desbloquear) - Oficial Atualizado para Android 
-## [Downlaod Now: Moonvale Mod APK](https://apksil.com/moonvale/) 
+## [Download Now: Moonvale Mod APK](https://apksil.com/moonvale/) 
 ## Junte-se à comunidade: [Aqui](https://t.me/apksil)
 ![moonvale-apk-download](https://github.com/user-attachments/assets/decc8895-a3a4-4aed-8c99-10b7d88a43fc)
 
